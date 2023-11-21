@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Maurixhd
+- 👀 I’m interested in learn more as a student
+- 🌱 I’m currently learning programation whit python
+- 💞️ I’m looking to collaborate on some work to learn as a student and I want to improve my studies
+- 📫 How to reach me amauriherreradiaz2@gmail.com
